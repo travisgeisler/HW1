@@ -1,2 +1,0 @@
-Travis Geisler
-Milwaukee Brewers
